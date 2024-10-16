@@ -18,7 +18,7 @@ j3 ⛦ ⛦ ⛦ ☆ḯ̶͕͈̜̰̜̯̩͖͙­̠̍͒̌̇̋̈́☆☆ḯ̶͕͈̜̰̜
 pregunta como puedo yo ayudarlos 
 
 
-
+d.v
 
 
 
